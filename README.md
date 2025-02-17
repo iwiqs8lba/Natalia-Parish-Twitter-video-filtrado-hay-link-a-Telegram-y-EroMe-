@@ -13,6 +13,7 @@ natalia paris natalia pariish telegram ✅Natalia parish viral video Original vi
 
 Reservados todos los derechos. De acuerdo con la legislación vigente podrán ser castigados con penas de multa y privación de libertad quienes reprodujeren o plagiaren, en todo o en parte, una obra literaria, artística o científica fijada en cualquier tipo de soporte sin la preceptiva autorización. Ninguna de las partes de esta publicación, incluido el diseño de cubierta, puede ser reproducida, almacenada o transmitida de ninguna forma, ni por ningún medio, sea electrónico, químico, mecánico, magneto-óptico, grabación, fotocopia o cualquier otro, sin la previa autorización escrita por parte de la editorial.
 
+
 Primeros pasos hacia el asentamiento del cinematógrafo en Sevilla: de la itinerancia a los locales estables
 
 Natalia Parish Twitter video filtrado hay link a Telegram y EroMe
